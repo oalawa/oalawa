@@ -1,7 +1,7 @@
 ## Introduction
 - 👋 Hi, I’m Omar Alawa
 - 👀 I’m interested in Data Analysis and Integration
-- 🌱 I’m currently learning Computer Vision
+- 🌱 I’m currently learning Computer Vision and Data Science
 - 💞️ I’m looking to collaborate on creating a Drug screening data platform
 
 ## Contact Information
