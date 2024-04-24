@@ -11,7 +11,7 @@ If you have any questions, collaboration opportunities, or would like to discuss
 - Email: 📫 [oma4008@med.cornell.edu]
 - LinkedIn: [https://www.linkedin.com/in/omar-alawa-036486151/]
 
-I look forward to connecting and exploring opportunities to contribute to advancements in imaging and data analysis.
+I look forward to connecting and exploring opportunities to contribute to advancements in imaging, automation, and data analysis.
 
 
 
