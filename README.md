@@ -7,7 +7,7 @@
 
 ### About Me
 
-I am a Research Technician II specializing in High Throughput Drug Screening at Weill Cornell Medicine. With a B.S. in Biomedical Engineering, I am passionate about precision medicine and drug discovery. My journey began when I escaped the civil war in Syria at 18, pursued a better life and education, and now aim to enroll in an MD/PhD program in the 2025 cycle.
+I am a Research Technician II specializing in High Throughput Drug Screening at Weill Cornell Medicine. With a B.S. in Biomedical Engineering, I am passionate about precision medicine and drug discovery. My journey began when I escaped the civil war in Syria at 18, pursued a better life and education, and now aim to enroll in an MD/PhD program in the 2026 cycle.
 
 ### Current Projects
 
