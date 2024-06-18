@@ -32,5 +32,5 @@ I am committed to advancing the field of precision medicine through innovative r
 
 If you have any questions, collaboration opportunities, or would like to discuss any aspect of my work, feel free to reach out to me:
 
-- Email: 📫 [oma4008@med.cornell.edu]
+- Email: 📫 [oalaw001@fiu.edu]
 - LinkedIn: [https://www.linkedin.com/in/omar-alawa-036486151/]
